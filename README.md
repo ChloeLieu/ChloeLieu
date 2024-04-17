@@ -1,5 +1,5 @@
 
-# ✌️🌸 Chloe Lieu (she/her) 🧘☘️
+# 🌸 Chloe Lieu (she/her) ☘️
 I’m currently learning Interactive Design at Saskpolytech. 
 
 <!--
